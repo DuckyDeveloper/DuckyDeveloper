@@ -1,3 +1,1 @@
-Hi!
-This is DuckyDeveloper!
-I like coding and Minecraft!
+i hate my life...
