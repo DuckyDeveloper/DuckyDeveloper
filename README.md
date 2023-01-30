@@ -1,1 +1,2 @@
-i hate my life...
+i code vb.net stuff
+C# coming soon!!!
