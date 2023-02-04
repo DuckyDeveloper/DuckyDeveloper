@@ -1,2 +1,2 @@
-i code vb.net stuff
-C# coming soon!!!
+UPDATES/ANNOUNCEMENTS:
+Hotel Management System coming soon!
